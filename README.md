@@ -31,12 +31,18 @@ Unlimited Tik Tok Views(1000/3mins)
   <li>You can report Any Problem to us</li>
 </ol>
   
-<h3>If you want to Buy this send Telgram Massege</h3>
+<h3>If you want to Buy this send Telegram Massege</h3>
   <h4>
     <a href="https://t.me/dmcp_it">Click Here</a>
   </h4>
+  
 <h2>Before & After</h2>
 <h5>Starting--->After 3min--->30min</h5>
 <img src=https://github.com/Chamodpasin/Tiktok_views_king_dmcp/assets/83210562/4bb6eba2-0212-472e-926b-a5e6c7372ea1> <img src=https://github.com/Chamodpasin/Tiktok_views_king_dmcp/assets/83210562/def1185b-7d3b-42ac-9a1b-8533dea42419> <img src=https://github.com/Chamodpasin/Tiktok_views_king_dmcp/assets/83210562/f9f9ad8a-5c66-4e43-b948-90548b4cff0e>
+
+<h3>My Portfolio</h3>
+  <h4>
+    <a href="https://chamodpasindu.blogspot.com/">Click Here</a>
+  </h4>
 
 If you want develop this with me also you can contact me and know about bug.
