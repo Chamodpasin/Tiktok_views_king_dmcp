@@ -39,4 +39,4 @@ Unlimited Tik Tok Views(1000/3mins)
 <h5>Starting--->After 3min--->30min</h5>
 <img src=https://github.com/Chamodpasin/Tiktok_views_king_dmcp/assets/83210562/4bb6eba2-0212-472e-926b-a5e6c7372ea1> <img src=https://github.com/Chamodpasin/Tiktok_views_king_dmcp/assets/83210562/def1185b-7d3b-42ac-9a1b-8533dea42419> <img src=https://github.com/Chamodpasin/Tiktok_views_king_dmcp/assets/83210562/f9f9ad8a-5c66-4e43-b948-90548b4cff0e>
 
-If you want develop this with also you can contact me and know about bug.
+If you want develop this with me also you can contact me and know about bug.
